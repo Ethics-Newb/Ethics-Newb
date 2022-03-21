@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Ethics-Newb
+- 👀 I’m interested in Cyber Security
